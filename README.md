@@ -1,2 +1,2 @@
-# De-Googlization-Barrier
+# De-Googlization Barrier
 The Fediverse Space
