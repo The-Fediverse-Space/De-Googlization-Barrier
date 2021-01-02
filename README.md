@@ -7,7 +7,7 @@ The Fediverse Space
 
 #VoterIntegrity - #StopTheSteal - TEXT PRAYNOW to 86184
 
-If you're tired of cancel culture and censorship subscribe to Fight Big Tech.“Independent fact-checkers” – i.e., third party companies contracted by Facebook, Twitter, Google and others to, all too often arbitrarily decide what is true and what is false, are at it again.
+If you're tired of cancel culture and censorship [subscribe](https://fightbig.tech/128195-newsletter.html) to Fight Big Tech.“Independent fact-checkers” – i.e., third party companies contracted by Facebook, Twitter, Google and others to, all too often arbitrarily decide what is true and what is false, are at it again.
 
 We need to end all protections of BIG TECH. And we need to take our country back from these authoritarian techies who we have all made rich. @Twitter and @Facebook 's censorship of the @nypost story on a meeting between Hunter Biden, Joe Biden, and Burisma is an obvious and transparent attempt to influence the 2020 election. 
 
