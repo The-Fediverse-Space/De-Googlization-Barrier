@@ -1,4 +1,4 @@
-* CSS CUSTOMIZATION
+# CSS CUSTOMIZATION
 
 ```
 #custom-css {
